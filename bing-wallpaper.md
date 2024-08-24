@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-25 | [Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.KatahdinWoods_EN-US8182768375_UHD.jpg) 
+
 2024-08-24 | [Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg) 
 
 2024-08-23 | [Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg) 
