@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-29 | [Old town and Vltava River, Prague, Czechia (© Lara_Uhryn/Getty Images)](https://cn.bing.com/th?id=OHR.VltavaPrague_EN-US6068116977_UHD.jpg) 
+
 2026-11-27 | [Two wild tom turkeys (© davidsdodd/Getty Images)](https://cn.bing.com/th?id=OHR.WildTom_EN-US1069249609_UHD.jpg) 
 
 2026-11-26 | [Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)](https://cn.bing.com/th?id=OHR.SunsetPoint_EN-US0827880440_UHD.jpg) 
